@@ -1,1 +1,0 @@
-# DeepthiProjects-ML-Mini-Project
